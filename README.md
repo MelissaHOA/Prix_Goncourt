@@ -1,6 +1,1 @@
-Le prix Goncourt 2024 
-sera attribué lundi 4 novembre, au restaurant Drouant à Paris, à l'issue de trois sélections successives :
-
-• mardi 3/9 : première sélection comportant une liste de 16 romans ;
-• mardi 1/10 : deuxième sélection ;
-• mardi 22/10 : troisième sélection.
+![image](https://github.com/user-attachments/assets/a95831f3-a27d-4f7a-a371-cfef65300958)
